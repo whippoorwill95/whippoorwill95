@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @whippoorwill95
 - 👀 I’m interested in getting money
-- 🌱 I’m currently learning ...
-- Yes
+- 🌱 I’m currently learning ... Yes
 - 💞️
 - 📫 I'm here
 - You can trust me completelly
